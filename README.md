@@ -1,1 +1,0 @@
-# gustavoalmeidavidal.github.io
